@@ -1,0 +1,1 @@
+# Hatsutech-Politica-de-Privacidade
